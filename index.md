@@ -1,4 +1,4 @@
-## Official Domain Of B-THE-SPIRIT
+## Official B-THE-SPIRIT Domain!
 
 ![defend the sacred](https://user-images.githubusercontent.com/37987346/90572388-e78c8c00-e181-11ea-9938-3bb0915909fa.jpg)
 
